@@ -1,1 +1,1 @@
-# IUCEE-College-Chapter-
+# IUCEE-College-Chapter
